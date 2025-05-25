@@ -2,7 +2,7 @@
 
 Take your gameplay of **How High Can You Leap In A Single Jump** to new heights with this powerful script! Automatically perform high jumps, unlock all levels, remove restrictions, and enjoy a smoother gaming experience.
 
-🔽 [Download the How High Can You Leap In A Single Jump Script here 🔓](https://anysoftdownload.com/)
+
 
 ---
 
@@ -19,9 +19,7 @@ Updated for 2025, the script includes:
 * 🦘 **Auto-Leap** — perform continuous or super-high jumps automatically.  
 * 🔓 **Unlock All Levels & Maps** — access every level and map without restrictions.  
 * 🚫 **Remove Limitations** — disable jump power caps and game restrictions.  
-* ⚡ **Speed Up Gameplay** — increase jump frequency and responsiveness.  
-* 📱 **Mobile Support** — compatible with Android and iOS devices via exploits or jailbreaking.  
-* 🔒 **No Password Needed** — just inject and activate features effortlessly.  
+* ⚡ **Speed Up Gameplay** — increase jump frequency and responsiveness. * 🔒 **No Password Needed** — just inject and activate features effortlessly.  
 * 🧼 **Easy-to-Use Menu** — toggle features with a simple interface or hotkeys.  
 * 🚀 **Optimized for Performance** — smooth, lag-free jumping and gameplay.
 
